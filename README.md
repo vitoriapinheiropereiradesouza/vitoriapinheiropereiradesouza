@@ -1,0 +1,4 @@
+- 👋 oii, eu sou @vitoriapinheiropereiradesouza
+-estudo no colegio polivalente
+-trabalho como cuidadora antes do colegio e mais um pouco a tarde
+-tenho 16 anos
